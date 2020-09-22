@@ -1,2 +1,2 @@
 # Mamun
-I am a professional Graphics Designer and web developer for more than 6 years. I have worked with HTML to PSD, Bootstrap, Wordpress, css,HTML5 others i am working on Logo Design, Flyer Design, Webpage Design, Banner Design.
+I am a professional web programmer for more than 6 years. I have worked with, Adobe creative suite, Figma, Adobe XD, Bootstrap 4 latest version, Wordpress, All graphics related work support. I think, all the necessary requirements required to work at your job are with me.
